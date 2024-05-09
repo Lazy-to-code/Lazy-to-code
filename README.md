@@ -16,6 +16,5 @@ I'm obsessed with Japanese culture and love contributing to open-source communit
 
 **---**
 
-**Let's Connect!**
-
-[あなたの GitHub プロフィールリンクを挿入してください (Anata no GitHub purofirūru rinku o sōnyū shite kudasai)]
+**Fun Facts!**
+I mate love coffee ☕️ because of someone special! 💕
