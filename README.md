@@ -16,5 +16,5 @@ I'm obsessed with Japanese culture and love contributing to open-source communit
 
 **---**
 
-**Fun Facts!**
-I mate love coffee ☕️ because of someone special! 💕
+**おもしろ情報 (Fun Facts):**
+-   I mate love coffee ☕️ because of someone special! 💕
